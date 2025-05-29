@@ -12,6 +12,6 @@
 
 ## 🔗 Connect with me
 - 💼 [LinkedIn](https://linkedin.com/in/aisyaadhanuraini)
-- 📬 Email: aisyadha07.com
+- 📬 Email: aisyadha07@gmail.com
 
 > ✨ Welcome to my GitHub!
